@@ -1,0 +1,2 @@
+# durianlokalwajo
+asli dari wajo
